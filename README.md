@@ -3,7 +3,7 @@
 - 🌱 tenho 15 anos, 
 - 💞️ sou conhecida como jheny mary
 - 📫 eu sou linda 
-- 😄 e maravilhosa 
+- 😄 e maravilhosa
 - 💕 bjooss da diva
 
 <!---
